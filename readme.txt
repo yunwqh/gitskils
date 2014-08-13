@@ -1,1 +1,1 @@
-create a new branch is so fast.
+create a new branch is so fast & quick.
